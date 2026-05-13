@@ -1,4 +1,4 @@
-
+Get ahead in rivals with rivals Scripts instant, featuring teleport and auto-farm. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
